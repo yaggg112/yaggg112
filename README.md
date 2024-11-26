@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yaggg112
-- 👀 I’m interested in coding something in stock investment.
+- 👀 I’m interested in coding something about stock investment.
 
 - 📫 How to reach me: email:yaggg112@gmail.com
 - 😄 Pronouns: ...
